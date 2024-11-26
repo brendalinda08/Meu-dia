@@ -1,1 +1,3 @@
 # Meu-dia
+Hoje acordei 10:30 da manha, com sempre, levantei e fui tomar meu banho, me arrumei e fui almoçar, depois do almoço fui organizar minhas coisas para ir para a escola.
+peguei o onibus 12:26 e cheuei na escola 13:07 por ai, assim que cheguei ja tinha coisa pra fazer, entao fui fazer ne, era aula de projeto de vida, segunda aula foi de matematica, teve nada graças a Deus, terceira aula foi de artes, que tambem nao teve nada, intervalo eu comi bolo de milho e iorgute de mel, quarta aula, foi artes, teve apresentaçao de trabalho, quinta aula foi de quimica, ela olhou caderno e agora sexta aula. resumindo, hoje foi um dia tranquilo. 
